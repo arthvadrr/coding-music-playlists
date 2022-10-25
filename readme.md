@@ -1,20 +1,20 @@
-# coding music playlists
+# oding music playlists
 
 Ranked music I like for coding and working.
 
-## Swing
+## swing
 1. [Swing Beats \[Jazz Hop / Lo Fi / Chill Mix\]](https://www.youtube.com/watch?v=uZ6_ISALjcQ)
 
-## Coffee Shop
+## coffee shop
 1. [4k Cozy Coffee Shop with Smooth Piano Jazz Music for Relaxing, Studying and Working](https://www.youtube.com/watch?v=MYPVQccHhAQ)
 
-## Game Music
+## game music
 1. [Relaxing Music From Donkey Kong Country Series](https://www.youtube.com/watch?v=_G4yog_svfw)
 1. [Zelda & Chill](https://www.youtube.com/watch?v=GdzrrWA8e7A)
 
-## Retro Vibes
+## retro vibes
 1. [Back To The 80's' | Marvel83' Edition | Best of Synthwave And Retro Electro Music Mix](https://www.youtube.com/watch?v=0QKQlf8r7ls)
 1. [Nostalgic Synthwave / Retrowave Mix - Cloud Nine // Royalty Free Copyright Safe Music](https://www.youtube.com/watch?v=kCUwIi7qd2M)
 
-## Misc
+## misc
 1. [some 80s music my dad still listens to til this day](https://www.youtube.com/watch?v=q6zrcUkXfgc)
