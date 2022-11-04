@@ -11,12 +11,14 @@ Ranked music I like for coding and working.
 ## Game Music
 1. [Relaxing Music From Donkey Kong Country Series](https://www.youtube.com/watch?v=_G4yog_svfw)
 1. [Zelda & Chill](https://www.youtube.com/watch?v=GdzrrWA8e7A)
+1. [Donkey Kong Country Trilogy - Music Mix](https://www.youtube.com/watch?v=ONS7KYoYMoY&t=20s)
+1. [STARDEW VALLEY [LoFi & Hip Hop Beats](https://www.youtube.com/watch?v=scRoJCsy6dA)
 
 ## Retro Vibes
 1. [Back To The 80's' | Marvel83' Edition | Best of Synthwave And Retro Electro Music Mix](https://www.youtube.com/watch?v=0QKQlf8r7ls)
 1. [Nostalgic Synthwave / Retrowave Mix - Cloud Nine // Royalty Free Copyright Safe Music](https://www.youtube.com/watch?v=kCUwIi7qd2M)
 
-## Western
+## Country Western / Bluegrass
 1. [Western Ambient - Desert Themed Instrumental Meditation Music - Deep Focus Music Therapy](https://www.youtube.com/watch?v=RfBgmw_xCVY)
 
 ## Misc
